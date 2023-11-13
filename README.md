@@ -30,5 +30,5 @@ License
 Living on Poison is licensed under the ADAM License.
 
 Contact
-For inquiries or further information about Living on Poison, please contact abdallahadam@email.com.
+For inquiries or further information about Living on Poison, please contact abdallahaadam@gmail.com.
 
